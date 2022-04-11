@@ -60,7 +60,9 @@ Code Quality Reports -
 My code quality analysis report by codiga for recent code.
 
 Code grade - A
+
 Code Quality Score - 99%
+
 Code lines - 2982918
 
 https://lnkd.in/dFtZj_sH
