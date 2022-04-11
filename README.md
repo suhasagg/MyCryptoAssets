@@ -55,6 +55,16 @@ https://photos.app.goo.gl/rWarPaP8xaqHe24K6
 https://photos.app.goo.gl/kKAL7hH5D1MPQJK77
 
 
+My code quality analysis report by codiga for recent code.
+
+Code grade - A
+Code Quality Score - 99%
+Code lines - 2982918
+
+https://lnkd.in/dFtZj_sH
+
+https://lnkd.in/dzBijJ9P
+
 
 
 
