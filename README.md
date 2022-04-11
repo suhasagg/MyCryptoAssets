@@ -55,6 +55,8 @@ https://photos.app.goo.gl/rWarPaP8xaqHe24K6
 https://photos.app.goo.gl/kKAL7hH5D1MPQJK77
 
 
+Code Quality Reports -
+
 My code quality analysis report by codiga for recent code.
 
 Code grade - A
