@@ -14,7 +14,7 @@ https://trxhr.com/register?code=890972
 
 https://www.usdt.london/reg?code=afrofs
 
-https://trxeo.com/#/pages/login/register?id=75276645
+https://trxeo.com/#/pages/login/register?id=67823802
 
 https://trxub.com/#/pages/login/register?id=03055416
 
