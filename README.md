@@ -16,7 +16,7 @@ https://www.usdt.london/reg?code=afrofs
 
 https://trxeo.com/#/pages/login/register?id=75276645
 
-https://trxub.com/#/pages/login/register?id=75382872
+https://trxub.com/#/pages/login/register?id=03055416
 
 https://trxtron.bet/#/pages/login/register?id=68320538
 
