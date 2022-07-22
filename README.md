@@ -6,8 +6,6 @@ https://itrxfl.com/register?code=697689
 
 https://cfdtrx.com/#/pages/login/register?id=53360733
 
-https://trxeo.com/#/pages/login/register?id=75276645
-
 https://trxpp.com/register?code=410076
 
 https://trxhr.com/register?code=890972
